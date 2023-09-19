@@ -1,0 +1,2 @@
+<img src="https://github.com/ariyazhan/foto/blob/main/cosplay/Photoleap_19_09_2023_16_59_46_5NVKM.jpg" width="100%" alt="screenshot">
+<img src="https://github.com/ariyazhan/foto/blob/main/cosplay/Photoleap_19_09_2023_17_13_53_mxbnu.jpg" width="100%" alt="screenshot">
